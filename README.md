@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @vapid-ai
+- 👀 I’m interested in intelligence, organic or otherwise
+- 🌱 I’m currently learning everything
+- 📫 How to reach me founder@vapid.ai
